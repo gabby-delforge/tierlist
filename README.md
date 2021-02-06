@@ -1,6 +1,6 @@
 # TIER LIST
 
-![Gebby and Alyx](./asset/images/New Drawing - Copy.png)
+![Gebby and Alyx](./asset/images/Gebby_Alyx.png)
 
 This tier list is exclusively for Gebby and Alyx. We're gonna rank some shit!
 
